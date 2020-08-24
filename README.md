@@ -7,4 +7,4 @@
 
 ### I enjoy:
 
-- ✨ Skiing, Computers, Winter, Weed, Christmas, Design, Colors, Typography, Technology & more.
+- ✨ Skiing, Computers, Winter, Christmas, Design, Beatmaking, Colors, Typography, Technology & more.
