@@ -2,7 +2,7 @@
 
 ## Currently learning:
 
-- 🔔 Lua / JS / HTML / CSS / NodeJS / UI-UX / Graphic Design
+- 🔔 JS / HTML / CSS / NodeJS / UI-UX / Graphic Design
   <br>
 
 ### I enjoy:
