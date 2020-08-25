@@ -2,7 +2,7 @@
 
 ## Currently learning:
 
-- ✨ JS / HTML / CSS / NodeJS / UI-UX / Beat Making
+- ✨ JS / HTML / CSS / UI-UX
   <br>
 
 ### I enjoy:
